@@ -6,6 +6,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 
 00001096726701SP@al.educacao.sp.gov.br
 
-![](https://th.bing.com/th/id/OIP.TEbbWdoMwTjp0XxUiOOX0wHaD4?w=350&h=197&c=7&r=0&o=5&pid=1.7)
+![](https://www.bing.com/th/id/OGC.9355a58dd77f8dcd1df4cdf2097af3aa?pid=1.7&rurl=https%3a%2f%2fmedia1.tenor.com%2fimages%2f9355a58dd77f8dcd1df4cdf2097af3aa%2ftenor.gif%3fitemid%3d5532131&ehk=oktXmTXQAy%2bu4A1inXi%2b4qYNRKaxcLcE%2bdNxjksHjvo%3d)
 
 
